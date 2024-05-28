@@ -3,11 +3,6 @@
     <img src="https://spotifylistening.p8.lc/api/info/card?timestamp=3" alt="currently listening to spotify card" />
   </a>
 </p>
-<p align="center">
-  <a href="https://p8.lc">
-    <img src="https://l.p8.lc/api/duolingostats/1207825194?timestamp=3" alt="duolingo card" />
-  </a>
-</p>
 
 ### hi there 👋
 
