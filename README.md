@@ -5,7 +5,7 @@
 </p>
 <p align="center">
   <a href="https://l.p8.lc/api/duolingostats/1207825194">
-    <img src="https://l.p8.lc/api/duolingostats/1207825194?timestamp=1" alt="duolingo card" />
+    <img src="https://l.p8.lc/api/duolingostats/1207825194?timestamp=3" alt="duolingo card" />
   </a>
 </p>
 
