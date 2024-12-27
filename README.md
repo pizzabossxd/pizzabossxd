@@ -4,11 +4,11 @@
   </a>
 </p>
 
-### hi there 👋
+### hi there 👋🏻
 
 ### any pronouns
 
-## 👋 welcome aborad
+## 👋🏻 welcome aborad
 - contact me via email [hi@p8.lc](mailto:hi@p8.lc) 📬
 - fun fact u can check my website [https://p8.lc](https://p8.lc) to see what im listening to on spotify (it is a lot more accurate than here) as well as my links uwu
 ### curator on musixmatch 🎶📜
