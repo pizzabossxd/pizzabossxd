@@ -8,7 +8,7 @@
 
 ## 👋🏻 welcome aborad
 - contact me via email [hi@p8.lc](mailto:hi@p8.lc) 📬
-- fun fact u can check my website [https://p8.lc](https://p8.lc) to see what im listening to on spotify (it is a lot more accurate than here) as well as my links uwu
+- fun fact u can check my website [https://p8.lc](https://p8.lc) to see what im listening to on spotify (it is a lot more accurate than here) as well as my links
 ### spotify playlist [https://open.spotify.com/playlist/48f5jl7JqXNEu0C8AeHrel](https://open.spotify.com/playlist/48f5jl7JqXNEu0C8AeHrel) 🎵
 ### i love metal, rap, hyperpop, aesthetic rap, and basically any genre out there 💘
 ### married to synthwave, vaporwave, electronic music 🚀
